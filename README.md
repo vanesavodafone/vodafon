@@ -1,3 +1,0 @@
-# vodafon
-jkoijji
-ewhfoihdw
